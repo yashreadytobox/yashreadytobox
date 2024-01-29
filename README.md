@@ -100,4 +100,4 @@ I'm a driven electronics and communication engineer with a minor in computer sci
   - *Key Skills:* Time Series Analysis, Python
 
 
-
+https://drive.google.com/drive/folders/1tseRdQMY53jSu0dRQ6k8b-l9k9N8yyOp?usp=sharing
